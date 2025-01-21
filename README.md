@@ -13,7 +13,6 @@ This article will guide you through everything you need to know about the Nekopo
 
 If you're ready to experience the best anime streaming app on your device, download **Nekopoi APK v2.5.4.2** today! Click the button below to start the download:
 
-
 ## Version Information
 
 | **Attribute**          | **Details**                              |
